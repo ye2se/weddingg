@@ -1,1 +1,1 @@
-# weddingg
+# wedding
